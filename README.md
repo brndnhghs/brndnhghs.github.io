@@ -5,7 +5,7 @@ Seattle, WA | br*****hs@gmail.com | (253) 777-**** | linkedin.com/in/brandonhugh
 
 **PROFESSIONAL SUMMARY**
 
-Creative Technologist specializing in interactive media systems, real-time audiovisual processing, and live performance technology. Combines creative technology skills with technical direction for live events and technical systems integration. Pursuing AV Tecninician roles and creative technologist opportunities in interactive installations, immersive experiences, and performance technology. Interested in teams exploring emerging forms of experiential media.
+Creative Technologist specializing in interactive media systems, real-time audiovisual processing, and live performance technology. Combines creative skills with technical direction for live events and systems integration. Pursuing AV Tecninician roles and creative technologist opportunities in interactive installations, immersive experiences, and performance technology. Interested in teams exploring emerging forms of experiential media.
 
 ===================================================================
 
